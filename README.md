@@ -1,3 +1,3 @@
 ## Rock me Amadeus.
 
-![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/1c4f32b8f8610274fa125099be4aeefce18c5131/tumblr_d9f808df8a4b3f5c4ed211044d095cc9_b24bf711_540.gif.webp)
+![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/34e016dab8415e95d5e576f2cd39439fca4a8b90/tumblr_28c31f780461a50baebf7a0446ecd598_cf372bb2_540.gif.webp)
